@@ -16,7 +16,7 @@ Discourteous and intolerable behavior comprise but is not bound to,
         ◦ Upholding any of the above conducts.
           
 - Be patient:
-You might be interacting with someone who may not have your level of understanding or has a foremost language dissimilar to yours.
+You might be interacting with someone who may not have your level of understanding or has a foremost language different from yours.
 
 - Be welcoming:
 Our communitity welcomes people from all backgrounds, regardless of theirs race, ethnicity, culture, national origin, color, religion, social and economic status, sex, education, gender and political belief.
